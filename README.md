@@ -1,1 +1,1 @@
-# ver1
+# chinamagic.github.io
